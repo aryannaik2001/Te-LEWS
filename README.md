@@ -1,0 +1,1 @@
+# Territorial-Landslide-Early-Warning-System-SPARK-IIT-Roorkee-
